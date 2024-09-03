@@ -12,3 +12,5 @@ https://www.youtube.com/watch?v=M9RcpsZyBX0
 https://padlet.com/mariza_tsourti/padlet-tk6l14ccvvglj7xf
 https://padlet.com/mariza_tsourti/padlet-9gxyqmltfr9ab5df/slideshow
 https://padlet.com/mariza_tsourti/padlet-cpx06gxi5c9y
+http://13lyk-athin.att.sch.gr/autosch/joomla15/index.php/drastiriotites/eortes/197-h-sxoliki-mas-giorti-gia-tin-25i-martiou
+https://www.timetoast.com/timelines/holocaust-timeline-of-events-1933-1945
