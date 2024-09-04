@@ -5,7 +5,7 @@
 - 🌱 I’m teaching history, modern Greek language and litterature
 - 💬 Ask me about teaching senarios
 - 📫 How to reach me: reach me in readme files
-- 🎇Here are some ideas to get start history lessons or language and litterature lessons: 
+- 🎇Here are some OER to get start interdisciplinary teaching scenarios combining the subject areas: History,language and literature.
 -#https://www.youtube.com/watch?v=I4rfjD0GWhU
 -#https://www.youtube.com/watch?v=sf5U5e-BoAo
 -#https://www.youtube.com/watch?v=M9RcpsZyBX0
