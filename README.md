@@ -14,4 +14,5 @@
 -#https://padlet.com/mariza_tsourti/padlet-cpx06gxi5c9y
 -#http://13lyk-athin.att.sch.gr/autosch/joomla15/index.php/drastiriotites/eortes/197-h-sxoliki-mas-giorti-gia-tin-25i-martiou
 -#https://www.timetoast.com/timelines/holocaust-timeline-of-events-1933-1945
--#https://www.mindomo.com/mindmap/492a09afb79e436badcefe7712dd
+-#https://www.mindomo.com/mindmap/492a09afb79e436badcefe7712dd7719#
+-#https://storybird.com/longform-story/oscar-wild-the-nightingale-and-the-rose/1
